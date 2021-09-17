@@ -1,4 +1,6 @@
-### Hi there 👋
+# TARGETED INDIVIDUAL
+
+![](https://clipartcraft.com/images/illuminati-logo-8.png)
 
 <!--
 **joshuashaffer/joshuashaffer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
