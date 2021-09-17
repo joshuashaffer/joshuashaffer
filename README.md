@@ -1,5 +1,3 @@
-# TARGETED INDIVIDUAL
-
 ![](https://clipartcraft.com/images/illuminati-logo-8.png)
 
 <!--
